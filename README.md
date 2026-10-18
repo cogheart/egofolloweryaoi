@@ -1,6 +1,6 @@
 <div align="center">
 <br> 
-  <sup> i hate my doomed yuri</sup>
+  
 <br> 
 <br> 
 <div align="center">
